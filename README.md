@@ -1,5 +1,4 @@
 # skillzup-privacy-policy
-SKILLZUP™ Privacy Policy
 Effective Date: July 1, 2025
 Company: BAWSE LEVEL LLC
 
